@@ -1,2 +1,1 @@
-Hello, Pls Don't Skid MY Shit LMFAO
--pwn2d
+am working on something rn, or doing something dumb
